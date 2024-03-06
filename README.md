@@ -1,1 +1,1 @@
-:)
+Someone's pain is someone's happiness... :)
